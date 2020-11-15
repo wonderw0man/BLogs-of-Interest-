@@ -1,5 +1,6 @@
 # Blogs of Interest 
 
+> ***How to HOST a virtual part.***
 In this uncertain time of social isolation – there has become a desire to socialize while keeping your distance. It seems weird. It seems strange. It’s certainly unprecidented – but as far as we’re concerned – the show must go on… and for us a minimum of – the parties still can!
 
 We’ve actually been helping people host remote parties for a few time. COVID-19 has meant more people than ever are having to socialize apart – but before all this started, we still had customers who were playing remotely with students and friends who lived in several countries, or who were trying to run team building across different continents.
@@ -7,7 +8,7 @@ We’ve actually been helping people host remote parties for a few time. COVID-1
 So… while this might seem new for many folks – truly we’re just a bit behind the days.
 
 ## How does one do it?
-> Teenagers are chatting via the x-box for years. And in business teleconference has been occurring even longer.
+Teenagers are chatting via the x-box for years. And in business teleconference has been occurring even longer.
 
 Which means the resources for on-line parties are already out there to create this possible and plenty of of them are low cost or maybe free!.
 
@@ -18,7 +19,7 @@ Zoom is one we’ve heard plenty about recently – and it’s one we use oursel
 There are a range of other teleconference options and aps available – anybody of these will probably work for you within the same way.
 
 ## Small groups of 6-20 people
-> As all of our ceremonial dinner games are downloadable it makes them very easy to share with isolated friends which suggests you'll play with people everywhere the country – not just people near by.
+As all of our ceremonial dinner games are downloadable it makes them very easy to share with isolated friends which suggests you'll play with people everywhere the country – not just people near by.
 
 You also don’t need access to a printer – you'll be able to play our games by emailing the character booklet file to the guests and telling them which page their character starts on (usually it’s every 9 pages and follows the identical order because the invitation list).
 
@@ -27,7 +28,7 @@ Send them the one sided print option as that’s easier for screen use. Guests c
 With regards to the “inspector MP3s.” you've got a choice here. you'll either play them through your microphone from your end, or with a flying off-screen grow to be something “inspectory” sort of a hat – you'll be able to deliver those speeches personally back on camera as we always include the script too.
 
 ## Large group gaming.
-> For really large groups – we’d suggest using our “Multi-room games“. rather than an oversized unweildy gathering on-line, you'll be able to allocate the cast members, get them to record their monologues to video and post those to a page.
+For really large groups – we’d suggest using our “Multi-room games“. rather than an oversized unweildy gathering on-line, you'll be able to allocate the cast members, get them to record their monologues to video and post those to a page.
 
 You can then create groups from the participants playing to interrogate the suspects. If you've got an oversized group playing – create multiple meetings.
 
