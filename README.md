@@ -1,6 +1,8 @@
 # Blogs of Interest 
 
 > ***How to HOST a virtual part.***
+
+
 In this uncertain time of social isolation – there has become a desire to socialize while keeping your distance. It seems weird. It seems strange. It’s certainly unprecidented – but as far as we’re concerned – the show must go on… and for us a minimum of – the parties still can!
 
 We’ve actually been helping people host remote parties for a few time. COVID-19 has meant more people than ever are having to socialize apart – but before all this started, we still had customers who were playing remotely with students and friends who lived in several countries, or who were trying to run team building across different continents.
