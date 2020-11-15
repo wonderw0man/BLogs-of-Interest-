@@ -31,3 +31,34 @@ For really large groups – we’d suggest using our “Multi-room games“. rat
 
 You can then create groups from the participants playing to interrogate the suspects. If you've got an oversized group playing – create multiple meetings.
 We’d also suggest some photos on a bunch page for the evidence that you simply would ordinarily have handled at a live event. If you can’t represent photos of the evidence up you would like for the event – then just describe it in an exceedingly statement.
+
+> **Don't tell me say more about'LOVE'**
+as if I’ve never been to the Taco Bell
+on the beach at 9am
+with a hooded man seated across from me
+at a grimy table,
+waiting for our number to be called—
+as if I’ve never seen the sandy deck and
+its walk-up window and wished
+for more ode and fewer elegy in my life,
+or written both with nothing but sauce
+and a pair of napkins—
+as if Pacifica is ever without fog, or as if
+I am ever without fog, as if when he
+looked at me and tugged the cords
+of his sweatshirt it meant something
+other than warmth—
+as if I’ve never heard the dirge
+of a sunset at this same table,
+the fear of being discovered or jettisoning
+as palpable as an egg taco made
+probably, definitely
+entirely out of powder and hot water—
+as if the crunch of a quesadilla
+can only burn the mouth of somebody
+not crazy at the Taco Bell
+on the beach—
+as if I haven’t both not been loving
+and been smitten,
+as if I haven’t felt the latter beat the previous
+every goddamn time
