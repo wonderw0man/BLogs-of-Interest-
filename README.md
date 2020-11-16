@@ -1,7 +1,7 @@
 # Blogs of Interest 
-25th October, 2020
+***25th October, 2020***
 
-## How to HOST a virtual party.
+## Let's HOST a virtual party.
 
 In this uncertain time of social isolation – there has become a desire to socialize while keeping your distance. It seems weird. It seems strange. It’s certainly unprecidented – but as far as we’re concerned – the show must go on… and for us a minimum of – the parties still can!
 
@@ -32,7 +32,7 @@ For really large groups – we’d suggest using our “Multi-room games“. rat
 You can then create groups from the participants playing to interrogate the suspects. If you've got an oversized group playing – create multiple meetings.
 We’d also suggest some photos on a bunch page for the evidence that you simply would ordinarily have handled at a live event. If you can’t represent photos of the evidence up you would like for the event – then just describe it in an exceedingly statement.
 
-03rd November, 2020
+***03rd November, 2020***
 
 ## Don't tell me say more about'LOVE'
 as if I’ve never been to the Taco Bell
@@ -91,4 +91,6 @@ and been smitten,
 
 as if I haven’t felt the latter beat the previous
 
-every goddamn time
+every goddamn time.
+
+
